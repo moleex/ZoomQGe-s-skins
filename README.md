@@ -1,4 +1,4 @@
-#ZoomQGe's skins
+# ZoomQGe's skins
 
 Здесь собраны все скины, которые использует ZoomQGe.
 
