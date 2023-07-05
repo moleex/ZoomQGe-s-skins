@@ -6,7 +6,7 @@
 
 **[1. DDDX 15 DT Mix](https://mega.nz/file/zcwSBbiL#33h5hgaWOC80hEoGiC5AwvsuH6-gijg3IpqnY1j425A)**
 
-![](https://sun9-21.userapi.com/impg/OfjH7mAetlnseN7ekHE5xDqPmXKrGiIg3Z6NDA/VjM2clIEGQI.jpg?size=640x360&quality=96&sign=2783403ba7ef029027e3d211476f58fa&type=album)
+![](https://sun9-18.userapi.com/impg/G6obTylJL_KeZn6BGNn1PpEZmGPVwFYgUN9aYQ/ISqzWFMKFWg.jpg?size=1920x1080&quality=96&sign=114e909f4ebe235510b37a4126a335b3&type=album)
 
 **[2. -Neferpitou Aristia Edit](https://mega.nz/file/OZA1UbBZ#aybLqbYLzeNpU5AW-5_77ez1jzrFr2S_soX_6LhuQ38)**
 
